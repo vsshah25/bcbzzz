@@ -2,6 +2,4 @@
 ITSP
 fuck off
 viral ashiq hai
-somu ki maa ki chut
-somu madarchod
-uski maa ko loda
+viral chutiya bhadva madarchod bhosdika lauda chut sab hai saala gujju
