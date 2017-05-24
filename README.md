@@ -1,3 +1,2 @@
 # bcbzzz
 ITSP
-somu chutmarika
